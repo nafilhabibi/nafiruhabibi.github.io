@@ -1,2 +1,2 @@
-# nafiruhabibi.github.io
+# NafilHabibi
 Hello I am Nafil Habibi
